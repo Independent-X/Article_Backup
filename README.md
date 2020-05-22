@@ -19,7 +19,7 @@ https://github.com/Independent-X/Article_Backup/blob/master/2020.3.25%20%E2%80%9
 
 <2>.
 
-政府利用文化宣传，从人民中制造英雄，然后把英雄当成消耗品来用，以保护自己的生命安全：
+政府利用文化宣传，从人民中制造英雄，然后把英雄当成消耗品来用，以保护自己的生命安全并让他们去处理自己懒政造成的失误：
 
 https://github.com/Independent-X/Article_Backup/tree/master/2020.4.4%20%E6%B8%85%E6%98%8E%E8%8A%82%E7%BA%AA%E5%BF%B5%E7%9B%B8%E5%85%B3%E5%9B%BE%E7%89%87
 
